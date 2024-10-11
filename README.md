@@ -4,4 +4,9 @@
 
 ### ...ᵀʰᵉ ᵂʳⁱᵗⁱⁿᵍ ᵒⁿ ᵗʰᵉ ᵂᵃˡˡ
 
+ 
+ 
 
+---
+
+![kjne](https://media.discordapp.net/attachments/1103862669250920478/1294445518721908767/image.png?ex=670b09d5&is=6709b855&hm=266b235cc60b79890e606b3bdbb7d56b03659a4fb9b893b69dff426c2ae1b3c9&=&format=webp&quality=lossless&width=669&height=52)
