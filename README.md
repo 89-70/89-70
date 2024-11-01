@@ -1,11 +1,10 @@
 ### ᵀʰᵉ ᵐᵉˢˢᵃᵍᵉ ᵒᶠ ᵈᵒᵒᵐ... ...
 
-sighs my graph messed up fixing it soon! maybe tmr,, or next week ,, one day
+![madebyme](https://iili.io/2nv6YTG.md.webp)
 
 ### ...ᵀʰᵉ ᵂʳⁱᵗⁱⁿᵍ ᵒⁿ ᵗʰᵉ ᵂᵃˡˡ
 
  
- !!not a fict / irl/ roleplayer i js might maybe like kaveh! still being considered by the counsel tho!!1
-
+ !!ⁿᵒᵗ ᵃ ᶠⁱᶜᵗ / ⁱʳˡ/ ʳᵒˡᵉᵖˡᵃʸᵉʳ ⁱ ʲˢ ᵐⁱᵍʰᵗ ᵐᵃʸᵇᵉ ˡⁱᵏᵉ ᵏᵃᵛᵉʰ! ˢᵗⁱˡˡ ᵇᵉⁱⁿᵍ ᶜᵒⁿˢⁱᵈᵉʳᵉᵈ ᵇʸ ᵗʰᵉ ᶜᵒᵘⁿˢᵉˡ ᵗʰᵒ!!¹
 ---
 
